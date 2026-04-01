@@ -9,3 +9,7 @@ gyjmtg fn ghn fgt f
 rge eg ergerg e gẻ gererg ẻ 
 erge ẻ gerg ẻ erg erg erg 
 thrth e erg e rg erg eg 
+d fd bfdb fgb fgb
+fgn gfhn gfhn ghng gh 
+f gfg ngfn fgn fgn fg gn ghn gh
+ fdbfg fg
