@@ -13,3 +13,17 @@ d fd bfdb fgb fgb
 fgn gfhn gfhn ghng gh 
 f gfg ngfn fgn fgn fg gn ghn gh
  fdbfg fg
+s csd csdc sdc sdc
+sdcsdc
+sdcsdcsd
+csdc sdc
+sdcsdc
+sdcsdc
+sdcs
+dcs
+dcs
+dc
+s
+dc
+sdc
+sd
