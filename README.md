@@ -12,18 +12,7 @@ thrth e erg e rg erg eg
 d fd bfdb fgb fgb
 fgn gfhn gfhn ghng gh 
 f gfg ngfn fgn fgn fg gn ghn gh
- fdbfg fg
-s csd csdc sdc sdc
-sdcsdc
-sdcsdcsd
-csdc sdc
-sdcsdc
-sdcsdc
-sdcs
-dcs
-dcs
-dc
-s
-dc
-sdc
-sd
+sd vsd vsdv sdv sdv sdv sdv
+ sdv sdv sdv sdv sdv sdv svd
+ s vdvsdsvd vsdv sdv sdv sdv sdv sd
+  svdsd sdv vf dsvsd sdv sdv sdv sdv sd
